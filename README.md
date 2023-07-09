@@ -1,1 +1,1 @@
-https://vinodjangid07.github.io/Aquaregia/
+https://Madhavendra-007.github.io/Aquaregia/
